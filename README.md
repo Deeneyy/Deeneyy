@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Deeneyy
 - 👀 I’m interested in sportybet balance adder
 - 🌱 I’m currently learning about it
-- 💞️ I’m looking to collaborate on anything regarding iy
+- 💞️ I’m looking to collaborate on anything regarding it
 - 📫 How to reach me ...
 sanigellashamsudeen@gmail.com
 <!---
